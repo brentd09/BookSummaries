@@ -1,2 +1,3 @@
-# BookSummaries
-Good books that I have read that had made a difference in my life (Self Help style)
+# Books Summaries
+
+## These are books that I have read and in some cases have got a lot of success from
