@@ -1,6 +1,6 @@
 # Think and Grow Rich
 
-![Cover](./images/cover-think-and-grow-rich.jpg)
+![Cover](./images/cover-think-and-grow-rich1.jpg)
 
 ## Desire
 - For anyone to be successful, it is crucial that there exist within them the desire to be great or at least better than their current state.
