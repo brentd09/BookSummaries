@@ -14,3 +14,121 @@
 - **Scroll VIII - Multiply Your Value Every Day**
 - **Scroll IX - All is Worthless Without Action**
 - **Scroll X - Pray to God for Guidance**
+
+## Notable quotes
+- ''Time is the most precious commodity I possess.''
+- ''No other trade or profession has more opportunity for one to rise from poverty to great wealth than that of salesman.''
+- “Wealth, my son, should never be your goal in life. Your words are eloquent but they are mere words. True wealth is of the heart, not of the purse.”
+- ''Obstacles are necessary for success because in selling, as in all careers of importance, victory comes only after many struggles and countless defeats.''
+- ‘’Each struggle, each defeat, sharpens your skills and strengths, your courage and your endurance, your ability and your confidence and thus each obstacle is a comrade-in-arms forcing you to become better … or quit. Each rebuff is an opportunity to move forward; turn away from them, avoid them, and you throw away your future.”
+- ‘’Nothing can bring the hurt of loneliness upon a man so swiftly as to pass a strange house in the dark and witness, in the lamplight from within, a family breaking evening bread together.’’
+- ''I could bestow on you great wealth but this would do you a terrible disservice. Far better is it that you become the world’s wealthiest and greatest salesman on your own.''
+- ''You must constantly dispose of half your earnings to those less fortunate than you. There must be no deviation from this condition.''
+- ''Failure no longer will be my payment for struggle. Just as nature made no provision for my body to tolerate pain neither has it made any provision for my life to suffer failure. Failure, like pain, is alien to my life.''
+- ''Yet, within my allotted time I must practice the art of patience for nature acts never in haste. To create the olive, king of all trees, a hundred years is required.An onion plant is old in nine weeks. I have lived as an onion plant. It has not pleased me. Now I wouldst become the greatest of olive trees and, in truth, the greatest of salesmen.''
+- ‘’Experience is comparable to fashion; an action that proved successful today will be unworkable and impractical tomorrow.’’
+- ''In truth, experience teaches thoroughly yet her course of instruction devours men’s years so the value of her lessons diminishes with the time necessary to acquire her special wisdom.''
+- ''Good habits are the key to all success. Bad habits are the unlocked door to failure. Thus, the first law I will obey, which precedes all others is— I will form good habits and become their slave.''
+- ‘’As a child I was slave to my impulses; now I am slave to my habits, as are all grown men.’’
+- ''My actions are ruled by appetite, passion, prejudice, greed, love, fear,environment, habit, and the worst of these tyrants is habit. Therefore, if I must be a slave to habit let me be a slave to good habits. My bad habits must be destroyed and new furrows prepared for good seed.''
+- ‘’Any act with practice becomes easy. Thus a new and good habit is born, for when an act becomes easy through constant repetition it becomes a pleasure to perform and if it is a pleasure to perform it is man‟s nature to perform it often. When I perform it often it becomes a habit and I become its slave and since it is a good habit this is my will.’’
+- ‘’I will greet this day with love in my heart. I will greet this day with love in my heart.
+- For this is the greatest secret of success in all ventures. Muscle can split a shield and even destroy life but only the unseen power of love can open the hearts of men and until I master this art I will remain no more than a peddler in the market place. I will make love my greatest weapon and none on whom I call can defend against its force.’’
+- ‘’My reasoning they may counter; my speech they may distrust; my apparel they may disapprove; my face they may reject; and even my bargains may cause them suspicion; yet my love will melt all hearts liken to the sun whose rays soften the coldest clay.’’
+- ''I will love the sun for it warms my bones; yet I will love the rain for it cleanses my spirit. I will love the light for it shows me the way; yet I will love the darkness for it shows me the stars.''
+- ''I will welcome happiness for it enlarges my heart; yet I will endure sadness for it
+- opens my soul.
+- I will acknowledge rewards for they are my due; yet I will welcome obstacles for
+- they are my challenge.
+- I will greet this day with love in my heart.''
+- ‘’And how will I speak? I will laud mine enemies and they will become friends; I will encourage my friends and they will become brothers. Always will I dig for reasons to applaud; never will I scratch for excuses to gossip. When I am tempted to criticize I will bite on my tongue; when I am moved to praise I will shout from the roofs.’’
+- ‘’Is it not so that birds, the wind, the sea and all nature speaks with the music of praise for their creator? Cannot I speak with the same music to his children? Henceforth will I remember this secret and it will change my life.
+- I will greet this day with love in my heart.’’
+- ‘’I will love the ambitious for they can inspire me! I will love the failures for they can teach me. I will love the kings for they are but human; I will love the meek for they are divine. I will love the rich for they are yet lonely; I will love the poor for they are so many. I will love the young for the faith they hold; I will love the old for the wisdom they share. I will love the beautiful for their eyes of sadness; I will love the ugly for their souls of peace.
+- I will greet this day with love in my heart.’’
+- ‘’But how will I react to the actions of others? With love. For just as love is my weapon to open the hearts of men, love is also my shield to repulse the arrows of hate and the spears of anger.’’
+- ‘’And most of all I will love myself. For when I do I will zealously inspect all things which enter my body, my mind, my soul, and my heart. Never will I overindulge the requests of my flesh, rather I will cherish my body with cleanliness and moderation. Never will I allow my mind to be attracted to evil and despair, rather I will uplift it with the knowledge and wisdom of the ages.Never will I allow my soul to become complacent and satisfied, rather I will feed it with meditation and prayer. Never will I allow my heart to become small and bitter, rather I will share it and it will grow and warm the earth.’’
+- I will persist until I succeed.
+- ‘’The prizes of life are at the end of each journey, not near the beginning; and it is not given to me to know how many steps are necessary in order to reach my goal. Failure I may still encounter at the thousandth step, yet success hides behind the next bend in the road. Never will I know how close it lies unless I turn the corner.
+- Always will I take another step. If that is of no avail I will take another, and yet another.
+- In truth, one step at a time is not too difficult.
+- I will persist until I succeed.’’
+- ''I will be liken to the rain drop which washes away the mountain; the ant who devours a tiger; the star which brightens the earth; the slave who builds a pyramid. I will build my castle one brick at a time for I know that small attempts, repeated, will complete any undertaking.
+- I will persist until I succeed.''
+- ‘’I will never consider defeat and I will remove from my vocabulary such words and phrases as quit, cannot, unable, impossible, out of the question, improbable,failure, unworkable, hopeless, and retreat; for they are the words of fools. I will avoid despair but if this disease of the mind should infect me then I will work on in despair. I will toil and I will endure. I will ignore the obstacles at my feet and keep mine eyes on the goals above my head, for I know that where dry desert
+- ends, green grass grows.
+- I will persist until I succeed.’’
+- ''I will remember the ancient law of averages and I will bend it to my good. I will persist with knowledge that each failure to sell will increase my chance for success at the next attempt.''
+- ‘’I must have the night to appreciate the day. I must fail often to succeed only once.
+- I will persist until I succeed.’’
+- ''Nor will I allow yesterday’s success to lull me into today’s complacency, for this is the great foundation of failure. I will forget the happenings of the day that is gone, whether they were good or bad, and greet the new sun with confidence that this will be the best day of my life.''
+- ''I know one of the greatest principles of success; if I persist long enough I will win.
+- I will persist.
+- I will win.''
+- ‘’Since the beginning of time never has there been another with my mind, my heart, my eyes, my ears, my hands, my hair, my mouth. None that came before,none that live today, and none that come tomorrow can walk and talk and move and think exactly like me. All men are my brothers yet I am different from each.
+- I am a unique creature.
+- I am nature‟s greatest miracle.’’
+- None can duplicate my brush strokes, none can make my chisel marks, none can duplicate my handwriting, none can produce my child, and, in truth, none has the ability to sell exactly as I. Henceforth, I will capitalize on this difference for it is an asset to be promoted to the fullest.
+- ''My skills, my mind, my heart, and my body will stagnate, rot, and die lest I put them to good use. I have unlimited potential.''
+- ‘’I am not on this earth by chance. I am here for a purpose and that purpose is to grow into a mountain, not to shrink to a grain of sand. Henceforth will I apply all my efforts to become the highest mountain of all and I will strain my potential until it cries for mercy.’’
+- ‘’I will increase my knowledge of mankind, myself, and the goods I sell, thus my sales will multiply. I will practice, and improve, and polish the words I utter to sell my goods, for this is the foundation on which I will build my career and never will I forget that many have attained great wealth and success with only one sales talk, delivered with excellence. Also will I seek constantly to improve my manners and graces, for they are the sugar to which all are attracted.’’
+- ''All my problems, discouragements, and heartaches are, in truth, great opportunities in disguise. I will no longer be fooled by the garments they wear for mine eyes are open. I will look beyond the cloth and I will not be deceived.
+- I am nature‟s greatest miracle.''
+- ‘’I am nature’s greatest miracle.
+- And nature knows not defeat. Eventually, she emerges victorious and so will I,and with each victory the next struggle becomes less difficult.’’
+- ‘’Forgetting yesterday neither will I think of tomorrow.
+- Why should I throw now after maybe? Can tomorrow’s sand flow through the glass before today’s? ‘’
+- ‘’Should I concern myself over events which I may never witness? Should I torment myself with problems that may never come to pass? No! Tomorrow lies buried with yesterday, and I will think of it no more.
+- I will live this day as if it is my last.’’
+- ‘’This day is all I have and these hours are now my eternity. I greet this sunrise with cries of joy as a prisoner who is reprieved from death. I lift mine arms with thanks for this priceless gift of a new day. So too, I will beat upon my heart with gratitude as I consider all who greeted yesterday’s sunrise who are no longer with the living today. I am indeed a fortunate man and today’s hours are but a bonus, undeserved. Why have I been allowed to live this extra day when others,far better than I, have departed? Is it that they have accomplished their purpose while mine is yet to be achieved? Is this another opportunity for me to become the man I know I can be? Is there a purpose in nature? Is this my day to excel?
+- I will live this day as if it is my last.’’
+- I have but one life and life is nothing but a measurement of time. When I waste one I destroy the other.
+- ‘’I will avoid with fury the killers of time. Procrastination I will destroy with action; doubt I will bury under faith; fear I will dismember with confidence.Where there are idle mouths I will listen not; where there are idle hands I will linger not; where there are idle bodies I will visit not.’’
+- ‘’The duties of today I shall fulfill today. Today I shall fondle my children while they are young; tomorrow they will be gone, and so will I. Today I shall embrace my woman with sweet kisses; tomorrow she will be gone, and so will I. Today I shall lift up a friend in need; tomorrow he will no longer cry for help, nor will I hear his cries. Today I shall give myself in sacrifice and work; tomorrow I will have nothing to give, and there will be none to receive.
+- I will live this day as if it is my last.’’
+- ‘’I will live this day as if it is my last.
+- And if it is not, I shall fall to my knees and give thanks.’’
+- ‘’And how will I master my emotions so that every day is a happy day, and a productive one? I will learn this secret of the ages: Weak is he who permits his thoughts to control his actions; strong is he who forces his actions to control his thoughts. Each day, when I awaken, I will follow this plan of battle before I am captured by the forces of sadness, self-pity and failure.’’
+- I will master my moods through positive action and when I master my moods I will control my destiny.
+- ‘’No living creature can laugh except man. Trees may bleed when they are wounded, and beasts in the field will cry in pain and hunger, yet only I have the gift of laughter and it is mine to use whenever I choose. Henceforth I will cultivate the habit of laughter.I will smile and my digestion will improve; I will chuckle and my burdens will be lightened; I will laugh and my life will be lengthened for this is the great secret of long life and now it is mine.
+- I will laugh at the world.’’
+- ‘’And most of all, I will laugh at myself for man is most comical when he takes himself too seriously. Never will I fall into this trap of the mind. For though I be nature’s greatest miracle am I not still a mere grain tossed about by the winds of time? Do I truly know whence I came or whither I am bound? Will my concern for this day not seem foolish ten years hence? Why should I permit the petty happenings of today to disturb me? What can take place before this sun sets which will not seem insignificant in the river of centuries?
+- I will laugh at the world.’’
+- ‘’And how can I laugh when confronted with man or deed which offends me so as to bring forth my tears or my curses? Four words I will train myself to say until they become a habit so strong that immediately they will appear in my mind whenever good humor threatens to depart from me. These words, passed down from the ancients, will carry me through every adversity and maintain my life in balance. These four words are: This too shall pass.
+- I will laugh at the world.’’
+- ‘’When I am heavy with heartache I shall console myself that this too shall pass; when I am puffed with success I shall warn myself that this too shall pass. When I am strangled in poverty I shall tell myself that this too shall pass; when I am burdened with wealth I shall tell myself that this too shall pass. Yea, verily, where is he who built the pyramid? Is he not buried within its stone? And will the pyramid, one day, not also be buried under sand? If all things shall pass why should I be of concern for today?
+- I will laugh at the world.’’
+- ‘’And with my laughter all things will be reduced to their proper size. I will laugh at my failures and they will vanish in clouds of new dreams; I will laugh at my successes and they will shrink to their true value. I will laugh at evil and it will die untasted; I will laugh at goodness and it will thrive and abound. Each day will be triumphant only when my smiles bring forth smiles from others and this I do in selfishness, for those on whom I frown are those who purchase not my
+- goods.
+- I will laugh at the world.’’
+- ‘’Henceforth will I shed only tears of sweat, for those of sadness or remorse or frustration are of no value in the market place whilst each smile can be exchanged for gold and each kind word, spoken from my heart, can build a castle.’’
+- ‘’Never will I allow myself to become so important, so wise, so dignified, so powerful, that I forget how to laugh at myself and my world. In this matter I will always remain as a child, for only as a child am I given the ability to look up to others; and so long as I look up to another I will never grow too long for my cot.’’
+- ‘’Never will I be of concern that my goals are too high for is it not better to aim my spear at the moon and strike only an eagle than to aim my spear at the eagle and strike only a rock?’’
+- ''The height of my goals will not hold me in awe though I may stumble often before they are reached. If I stumble I will rise and my falls will not concern me for all men must stumble often to reach the hearth. Only a worm is free from the worry of stumbling. I am not a worm. I am not an onion plant. I am not a sheep.I am a man. Let others build a cave with their clay. I will build a castle with mine.''
+- ''To surpass the deeds of others is unimportant; to surpass my own deeds is all.''
+- ‘’I will commit not the terrible crime of aiming too low.
+- I will do the work that a failure will not do.
+- I will always let my reach exceed my grasp.
+- I will never be content with my performance in the market.
+- I will always raise my goals as soon as they are attained.
+- I will always strive to make the next hour better than this one.
+- I will always announce my goals to the world.
+- Yet, never will I proclaim my accomplishments. Let the world, instead, approach me with praise and may I have the wisdom to receive it in humility.’’
+- ''My dreams are worthless, my plans are dust, my goals are impossible. All are of no value unless they are followed by action.
+- I will act now.''
+- ‘’Never has there been a map, however carefully executed to detail and scale,which carried its owner over even one inch of ground. Never has there been a parchment of law, however fair, which prevented one crime. Never has there been a scroll, even such as the one I hold, which earned so much as a penny or produced a single word of acclamation. Action, alone, is the tinder which ignites the map, the parchment, this scroll, my dreams, my plans, my goals, into a living force. Action is the food and drink which will nourish my success.
+- I will act now.’’
+- ‘’My procrastination which has held me back was born of fear and now I recognize this secret mined from the depths of all courageous hearts. Now I know that to conquer fear I must always act without hesitation and the flutters in my heart will vanish. Now I know that action reduces the lion of terror to an ant of equanimity.
+- I will act now.’’
+- ''Only action determines my value in the market place and to multiply my value I will multiply my actions. I will walk where the failure fears to walk. I will work when the failure seeks rest. I will talk when the failure remains silent. I will call on ten who can buy my goods while the failure makes grand plans to call on one.
+- I will say it is done before the failure says it is too late.
+- I will act now.''
+- ‘’When the lion is hungry he eats. When the eagle has thirst he drinks. Lest they act, both will perish. I hunger for success. I thirst for happiness and peace of mind. Lest I act I will perish in a life of lure, misery, and sleepless nights.
+- I will command, and I will obey mine own command.
+- I will act now.’’
+- ‘’Success will not wait. If I delay she will become betrothed to another and lost to me forever. This is the time. This is the place. I am the man.I will act now.’’
+- ''Never will I pray for the material things of the world. I am not calling to a servant to bring me food. I am not ordering an innkeeper to provide me with room. Never will I seek delivery of gold, love, good health, petty victories, fame,success, or happiness. Only for guidance will I pray, that I may be shown the way to acquire these things, and my prayer will always be answered.''
+- ‘’You have taught the lion and the eagle how to hunt and prosper with teeth and claw.Teach me how to hunt with words and prosper with love so that I may be a lion among men and an eagle in the market place.’’
+- ‘’Spare me sufficient days to reach my goals; yet help me to live this day as though it be my last.’’
+- ‘’Assign me tasks to which others have failed; yet guide me to pluck the seeds of success from their failures. Confront me with fears that will temper my spirit; yet endow me with courage to laugh at my misgivings.’’
+- ‘’Bathe me in good habits that the bad ones may drown; yet grant me compassion for weaknesses in others. Suffer me to know that all things shall pass; yet help me to count my blessings of today.’’
