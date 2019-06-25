@@ -20,6 +20,7 @@
 - ''No other trade or profession has more opportunity for one to rise from poverty to great wealth than that of salesman.''
 - “Wealth, my son, should never be your goal in life. Your words are eloquent but they are mere words. True wealth is of the heart, not of the purse.”
 - ''Obstacles are necessary for success because in selling, as in all careers of importance, victory comes only after many struggles and countless defeats.''
+- Failure will never overtake me if my determination to succeed is strong enough
 - ‘’Each struggle, each defeat, sharpens your skills and strengths, your courage and your endurance, your ability and your confidence and thus each obstacle is a comrade-in-arms forcing you to become better … or quit. Each rebuff is an opportunity to move forward; turn away from them, avoid them, and you throw away your future.”
 - ‘’Nothing can bring the hurt of loneliness upon a man so swiftly as to pass a strange house in the dark and witness, in the lamplight from within, a family breaking evening bread together.’’
 - ''I could bestow on you great wealth but this would do you a terrible disservice. Far better is it that you become the world’s wealthiest and greatest salesman on your own.''
