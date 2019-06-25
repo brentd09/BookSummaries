@@ -6,4 +6,4 @@
 ### Pleasure
 - We naturally seek for things that are easy, pleasurable and familiar
 ## Fighting the natural 
-![Couragezone](images/comfortzone.jpg)
+![Couragezone](images/couragezone.jpg)
