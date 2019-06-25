@@ -79,7 +79,8 @@ opens my soul.
   - I know one of the greatest principles of success; if I persist long enough I will win.
   - I will persist.
   - I will win.''
-- Since the beginning of time never has there been another with my mind, my heart, my eyes, my ears, my hands, my hair, my mouth. None that came before,none that live today, and none that come tomorrow can walk and talk and move and think exactly like me. All men are my brothers yet I am different from each.
+- I am nature‟s greatest miracle.
+  - Since the beginning of time never has there been another with my mind, my heart, my eyes, my ears, my hands, my hair, my mouth. None that came before,none that live today, and none that come tomorrow can walk and talk and move and think exactly like me. All men are my brothers yet I am different from each.
   - I am a unique creature.
   - I am nature‟s greatest miracle.’’
   - None can duplicate my brush strokes, none can make my chisel marks, none can duplicate my handwriting, none can produce my child, and, in truth, none has the ability to sell exactly as I. Henceforth, I will capitalize on this difference for it is an asset to be promoted to the fullest.
