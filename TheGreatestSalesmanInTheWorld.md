@@ -158,7 +158,8 @@ I will command, and I will obey mine own command.
 I will act now.’’
   - Success will not wait. If I delay she will become betrothed to another and lost to me forever. This is the time. This is the place. I am the man.
   - I will act now.’’
-- Never will I pray for the material things of the world. I am not calling to a servant to bring me food. I am not ordering an innkeeper to provide me with room. Never will I seek delivery of gold, love, good health, petty victories, fame,success, or happiness. Only for guidance will I pray, that I may be shown the way to acquire these things, and my prayer will always be answered.''
+- Never will I pray for the material things of the world. 
+  - I am not calling to a servant to bring me food. I am not ordering an innkeeper to provide me with room. Never will I seek delivery of gold, love, good health, petty victories, fame,success, or happiness. Only for guidance will I pray, that I may be shown the way to acquire these things, and my prayer will always be answered.''
   - You have taught the lion and the eagle how to hunt and prosper with teeth and claw.Teach me how to hunt with words and prosper with love so that I may be a lion among men and an eagle in the market place.’’
   - Spare me sufficient days to reach my goals; yet help me to live this day as though it be my last.’’
   - Assign me tasks to which others have failed; yet guide me to pluck the seeds of success from their failures. Confront me with fears that will temper my spirit; yet endow me with courage to laugh at my misgivings.’’
