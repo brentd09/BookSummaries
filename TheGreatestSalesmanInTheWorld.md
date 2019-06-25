@@ -15,7 +15,7 @@
 - **Scroll IX - All is Worthless Without Action**
 - **Scroll X - Pray to God for Guidance**
 
-## Notable quotes
+## Notable quotes (this book is packed with them)
 - ''Time is the most precious commodity I possess.''
 - ''No other trade or profession has more opportunity for one to rise from poverty to great wealth than that of salesman.''
 - “Wealth, my son, should never be your goal in life. Your words are eloquent but they are mere words. True wealth is of the heart, not of the purse.”
