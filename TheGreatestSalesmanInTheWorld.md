@@ -5,6 +5,7 @@
 - This book uncovers the fact that people will not do business with you unless they trust you, and the principles uncovered in this book, if followed, can be a great benefit to you in your personal and professional life.
 ## The Scrolls
 - **Scroll I - I will Form Good Habits and Become their Slave**
+  - In truth experience teaches thoroughly  
 - **Scroll II - Greet Each Day With Love In Your Heart**
 - **Scroll III - I Will Persist Until I Succeed**
 - **Scroll IV - I am Nature's Greatest Miracle**
