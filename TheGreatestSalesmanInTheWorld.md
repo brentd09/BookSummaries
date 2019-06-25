@@ -1,1 +1,1 @@
-![Cover](images/cover-tgsitw.jpg)
+![Cover](images/cover-tgsint.jpg)
