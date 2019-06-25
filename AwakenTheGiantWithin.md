@@ -7,7 +7,7 @@
 - We naturally seek for things that are easy, pleasurable and familiar
 ## Fighting the natural 
 ![Couragezone](images/couragezone.jpg)
-### The danger of the 'Comfort Zone' 
+### The Danger of the 'Comfort Zone' 
 - When we stretch ourselves outside what is comfortable
   - It is at first very uncomfortable
   - As we persist our comfort grows in what was uncomfortable
