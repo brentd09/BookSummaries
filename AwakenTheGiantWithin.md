@@ -19,3 +19,4 @@
   - What was comfortable becomes very uncomfortable and we feel less and less empowered
 - There is no growth in the **Comfort Zone** only backward growth
 - Growth **only** happens when we **persist** in the **Courage Zone** long enough for it to start to be comfortable
+- **We learn to force ourselves to be uncomfortable with the comfortable** because we know as we slip into comfortable, our progress is going backward and the gains we made are being lost. 
