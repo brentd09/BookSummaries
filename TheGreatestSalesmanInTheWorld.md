@@ -94,8 +94,8 @@ opens my soul.
   - And nature knows not defeat. Eventually, she emerges victorious and so will I,and with each victory the next struggle becomes less difficult.
   - Forgetting yesterday neither will I think of tomorrow.
   - Why should I throw now after maybe? Can tomorrow’s sand flow through the glass before today’s? 
-  - Should I concern myself over events which I may never witness? Should I torment myself with problems that may never come to pass? No! Tomorrow lies buried with yesterday, and I will think of it no more.
-- I will live this day as if it is my last.’’
+- Should I concern myself over events which I may never witness? Should I torment myself with problems that may never come to pass? No! Tomorrow lies buried with yesterday, and I will think of it no more.
+  - I will live this day as if it is my last.’’
   - This day is all I have and these hours are now my eternity. I greet this sunrise with cries of joy as a prisoner who is reprieved from death. 
   - I lift mine arms with thanks for this priceless gift of a new day. So too, I will beat upon my heart with gratitude as I consider all who greeted yesterday’s sunrise who are no longer with the living today. 
   - I am indeed a fortunate man and today’s hours are but a bonus, undeserved. 
@@ -108,7 +108,7 @@ opens my soul.
   - I will live this day as if it is my last.
   - I will live this day as if it is my last.
   - And if it is not, I shall fall to my knees and give thanks.
-  - And how will I master my emotions so that every day is a happy day, and a productive one? 
+- And how will I master my emotions so that every day is a happy day, and a productive one? 
   - I will learn this secret of the ages: Weak is he who permits his thoughts to control his actions; strong is he who forces his actions to control his thoughts. Each day, when I awaken, I will follow this plan of battle before I am captured by the forces of sadness, self-pity and failure.
   - I will master my moods through positive action and when I master my moods I will control my destiny.
 - No living creature can laugh except man. 
