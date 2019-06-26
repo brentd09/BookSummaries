@@ -10,8 +10,8 @@
   - Muscle can split a shield and even destroy life but only the unseen power of love can open the hearts of men.
   - How will react to the actions of others? With love. For just as love is my weapon to open the hearts of men, love is also my shield to repulse the arrows of hate and the spears of anger.
 - **Scroll III - I Will Persist Until I Succeed**
-  - The prizes of life are at the end of each journey, not near the beginning;and it is not given to me to know how many steps are necessary in order to reach my goal.
-  - Failure I may still encounter at the thousandth step, yet success hides behind the next bendin the road.
+  - The prizes of life are at the end of each journey, not near the beginning; and it is not given to me to know how many steps are necessary in order to reach my goal.
+  - Failure I may still encounter at the thousandth step, yet success hides behind the next bend in the road.
   - Always I can take another step. If that is to no avail I will take another, and yet another. In truth, one step at a time is not too difficult.
   - Henceforth, I will consider each day's effort as but one blow of my blade against the mighty oak.
   - Each blow, of itself,  may be trifling, and seem of no consequence. Yet from childish swipes the oak will eventually tumble.
